@@ -1,1 +1,4 @@
 # Nejtyy
+# Nejty
+# Nejtyx
+# Nejtys
